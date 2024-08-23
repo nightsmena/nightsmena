@@ -1,1 +1,3 @@
 - 👋 Hi, I’m @nightsmena
+- 📢 My bio https://e-z.bio/nightsmena
+- 🇷🇺  From Russia
